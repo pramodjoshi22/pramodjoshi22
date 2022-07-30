@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **single.core.developers@gmail.com**
 
-- ⚡ Fun fact **I am to much funny.**
+- ⚡ I love Photography.**
 - **🎓 My portfolio link:** <a href="https://singlecoredevelopers.000webhostapp.com/" target="blank">Single core developer's</a>
 
 <h3 align="left">Connect with me:</h3>
