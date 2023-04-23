@@ -17,7 +17,7 @@
 - 📫 How to reach me **single.core.developers@gmail.com**
 
 - ⚡ I love **Photography.**
-- **🎓 My portfolio link:** <a href="https://linktr.ee/pramod_joshi" target="blank">Single core developer's</a>
+- **🎓 My portfolio link:** <a href="https://linktr.ee/pramod_joshi" target="blank">Pramod Joshi</a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
